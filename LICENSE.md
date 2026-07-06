@@ -1,4 +1,4 @@
-# 
+# Avançado birdeye sniper bot plugins para Mac OS | Exclusivo birdeye sniper bot plugins para PC Windows. Com testes de simulação e análise de dados — otimizado para máximo desempeño en cada plataforma.
 
 
 
